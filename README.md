@@ -1,1 +1,1 @@
-# Networks-and-telecommunications-lr2
+# Славный Даниил Михайлович ЛР-2
